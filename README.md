@@ -15,8 +15,6 @@
 
 - 📫 How to reach me **adityadeshmukh1298@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1IZClMze8VHY5pCQMGXOGcwWROMgjGndz/view?usp=sharing](https://drive.google.com/file/d/1IZClMze8VHY5pCQMGXOGcwWROMgjGndz/view?usp=sharing)
-
 - ⚡ Fun fact **work time only work rest fun.**
 
 <h3 align="left">Connect with me:</h3>
